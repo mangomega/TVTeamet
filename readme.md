@@ -1,1 +1,1 @@
-Find out about cheap  at <a href="http://www.tvteamet.com">IPTV Sverige
+Find out about cheap IPTV at <a href="http://www.tvteamet.com">IPTV Sverige
